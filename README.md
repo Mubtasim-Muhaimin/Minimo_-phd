@@ -1,1 +1,1 @@
-# Minimo_-phd
+https://mubtasim-muhaimin.github.io/Minimo_-phd/
